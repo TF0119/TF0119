@@ -1,3 +1,14 @@
 # ⌁ Takeru Fukuda
 
-minesweeperrrrrrrrrrrrrrrrrrrrrrrr
+からあげ
+ハンバーグ
+とんかつ
+肉を甘辛く炒めたやつ
+おひたし
+アジフライ
+とんかつ
+甘酢の餡がかかってるやつ
+エビチリ
+メンチカツ
+肉じゃが
+ごぼうとにんじん炒めたやつ
